@@ -1,4 +1,4 @@
-# Foydali Mahsulotlar 🍎🥬
+# Foydali Mahsulotlar 🍎🥬 - 100% AI tomindan tuzilgan REPO
 
 Foydali mahsulotlar to'g'risida to'liq ma'lumotlar - Complete information about useful products in Uzbek language
 
